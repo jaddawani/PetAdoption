@@ -87,5 +87,5 @@ Main Functions
 
 
 ## Contact us on :
-###### 🔻 **Mobile number** 0599000000 📱
-###### 🔻 **Phone**       02-2950000    ☎️
+###### 🔻 **Mobile number** 0598656681 📱
+
